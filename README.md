@@ -1,2 +1,2 @@
 # Funny-Blooket-deleting-soon-
-Funny Blooket
+blokert fune
